@@ -1,5 +1,7 @@
 # prayers3
 
+ARCHIVED: I will never edit this file again.  
+
 *These are what I had written in the status field of my GitHub account twice or three times a day until December 15, 2021 were like.  From now on instead of writing them in it manually, I will chant them by including this document.*  
 
 1. \#nnnn+0 As of now, since I sent that email about overtime to my mgr. before Oct. 2021, I haven't sent any email/SMS msg to any **Xxxxxx**ian myself.  
